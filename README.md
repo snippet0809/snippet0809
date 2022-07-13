@@ -2,7 +2,7 @@
 
 #### About Me
 
-- Chinese, born after 1990, living in Luoyang
+- Chinese, born after 1990s, living in Luoyang
 - Man, envy bisexuals, but only like girl
 - Inclusive
 - Poor programming skills
