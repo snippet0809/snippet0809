@@ -2,7 +2,6 @@
 
 - Chinese, born after 1990s, living in Luoyang
 - Man, envy bisexuals, but only like girl
-- Inclusive
 - Poor programming skills
 
 <!--
